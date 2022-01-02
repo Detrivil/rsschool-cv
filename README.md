@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Detrivil.github.io/rsschool-cv/
