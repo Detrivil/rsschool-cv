@@ -1,1 +1,1 @@
-https://Detrivil.github.io/rsschool-cv/cv
+https://Detrivil.github.io/rsschool-cv/
